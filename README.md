@@ -1,1 +1,0 @@
-# kmbm0916-biz.github.io
